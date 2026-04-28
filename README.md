@@ -1,0 +1,1 @@
+# karimbek_visol_oqshomi
